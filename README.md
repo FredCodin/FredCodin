@@ -10,4 +10,4 @@
 
 
 
-https://tenor.com/pt-BR/view/cat-haircut-fresh-vibing-style-gif-17287169
+![](https://tenor.com/pt-BR/view/cat-haircut-fresh-vibing-style-gif-1728716O)
