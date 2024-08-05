@@ -1,16 +1,13 @@
-## Hi there 👋
+                                          ## Wassup 🗿👌
 
-<!--
-**FredCodin/FredCodin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## I'm **Fred**, a brazilian guy who's beginner in Github. I hope to learn a bit of Javascript.
+*
+- I'm doing *Alura's course* for beginners
+*
+-Entered cause I was required too, but also wanting to learn a bit
+*
+- I wish we can have a good communication, also find cool people to learn and share things with 🎩
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+https://tenor.com/pt-BR/view/cat-haircut-fresh-vibing-style-gif-17287169
